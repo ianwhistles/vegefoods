@@ -1,0 +1,1 @@
+In his wisdom the Lord designed an amazing universe, as developers it's our duty to design an even greater illustration of it through the web.
